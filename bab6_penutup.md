@@ -1,0 +1,2 @@
+Penutup
+Petualangan Kancil mengajarkan kita bahwa menghadapi tantangan hidup butuh kecerdikan, ide-ide kreatif, dan kerjasama. Kadang, bukan soal seberapa kuat atau cepat kita, tapi bagaimana kita berpikir dan mengambil langkah dengan tenang yang bikin kita bisa mengatasi masalah. Selain itu, menghargai bantuan teman dan kerja sama bikin kita lebih kuat dan perjalanan menuju tujuan terasa lebih ringan.
